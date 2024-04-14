@@ -1,4 +1,5 @@
 <h5 align="center">
+<img src="https://64.media.tumblr.com/b2fb06625a15668d8d028a2a82e32af0/c3c3aa2f9d7a1fb1-cb/s1280x1920/d5eb53c50d2c24da3d3ab759c88a2abb37f27fe2.pnj"/>
 <img src="https://64.media.tumblr.com/01c7d58750674054418bded6dffd44c1/7c05b9b701a41a99-36/s1280x1920/860c134844279fb35b7e48800ce7552d77bff69a.pnj"/>
 
 <img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
@@ -15,7 +16,7 @@ $${\color{#ac191c}"\space Yes \space and \space they \space will \space run \spa
 Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan and Imbibitor Lunae heavy IRL / srs ♡ She / They pronouns
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/7f5f614e5993bc6fb4770163b2e0ae28/e99cce9921be0798-76/s500x750/ae618a5f69780b5676d5038825a243f4b2b5c618.pnj"/>
+<img src="https://64.media.tumblr.com/3bcc7874253899f6b4ba2e61214f00f9/b93506f0e2176062-e5/s400x600/c5be4972c1dc3a52753f52952eccc73df35e8a5b.pnj"/>
 </h5>  
 <h4 align="center">
 
@@ -37,13 +38,10 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 <img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
 </h5>
 
-<p align ="center">
-<img src="https://64.media.tumblr.com/2555a740dda463601e555017e5895272/68ab2ae39a2fe741-7d/s1280x1920/396d45a90eec350cfad343f92b6ffa2d82b31f29.gif"/>
-</h5>  
-</p>
-
 <img src="https://64.media.tumblr.com/d73f388cc8b83a502aa84907d6ba513c/7c05b9b701a41a99-ef/s1280x1920/1725a9e6c8b11f848a4220e361f05ca2c96fff8b.pnj"/>
+<img src="https://64.media.tumblr.com/b2fb06625a15668d8d028a2a82e32af0/c3c3aa2f9d7a1fb1-cb/s1280x1920/d5eb53c50d2c24da3d3ab759c88a2abb37f27fe2.pnj"/>
 
 CR ;; eternityypath , primotrumphet & yurimaxxing for graphics , etc !
 
-Cred to [Orphy!](https://github.com/Ovrpheus) <img src="https://64.media.tumblr.com/1b65bc25ad4727d7c44630a5ceddb1b6/6e7c5624608eadc8-aa/s100x200/e9c37d7d22f8c06b11130162c55eb3adf5ce61f3.gif"/>
+Cred to [Orphy!](https://github.com/Ovrpheus) || This read-me is matching with [Vilipender](https://github.com/vilipender)
+<img src="https://64.media.tumblr.com/1b65bc25ad4727d7c44630a5ceddb1b6/6e7c5624608eadc8-aa/s100x200/e9c37d7d22f8c06b11130162c55eb3adf5ce61f3.gif"/>
