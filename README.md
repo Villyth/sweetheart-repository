@@ -9,14 +9,14 @@
 $${\color{#ac191c}"\space Yes \space and \space they \space will \space run \space you \space down \space , \space down \space 'til \space you \space fall \space"}$$
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/f28415f16e7d38bc2fae245a515631ea/0b1cbee1c0dad611-57/s2048x3072/badc4733390c1431d4bb4c4ddf74b66b417c2e6c.pnj"/>
+<img src="https://64.media.tumblr.com/c8a9b45bfeda18d97822e8118d753823/0b1cbee1c0dad611-dd/s2048x3072/8f4b158106391c9173ecdcea33a70e4998973a60.pnj"/>
 </h5>  
 
 <h4 align="center">
 Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan and Imbibitor Lunae heavy IRL / srs ♡ She / They pronouns
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/3bcc7874253899f6b4ba2e61214f00f9/b93506f0e2176062-e5/s400x600/c5be4972c1dc3a52753f52952eccc73df35e8a5b.pnj"/>
+<img src="https://64.media.tumblr.com/265e0fb22d96e08bea81391d2995b8ab/b93506f0e2176062-89/s400x600/0ae28c985abd9d6677e897c81db3fd3fdafb6cf8.gif"/>
 </h5>  
 <h4 align="center">
 
@@ -31,11 +31,11 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 </h4> 
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/5213930e99b1373f954584732493b846/68ab2ae39a2fe741-0d/s640x960/74a3347fce6e6dffea47db06cfd83ec362d668fc.pnj"/>
+<img src="https://64.media.tumblr.com/f28415f16e7d38bc2fae245a515631ea/0b1cbee1c0dad611-57/s2048x3072/badc4733390c1431d4bb4c4ddf74b66b417c2e6c.pnj"/>
 </h5>
 
 <p align ="center">
-<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
+<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gif"/>
 </h5>
 
 <img src="https://64.media.tumblr.com/d73f388cc8b83a502aa84907d6ba513c/7c05b9b701a41a99-ef/s1280x1920/1725a9e6c8b11f848a4220e361f05ca2c96fff8b.pnj"/>
@@ -43,5 +43,6 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 
 CR ;; eternityypath , primotrumphet & yurimaxxing for graphics , etc !
 
-Cred to [Orphy!](https://github.com/Ovrpheus) || This read-me is matching with [Vilipender](https://github.com/vilipender)
-<img src="https://64.media.tumblr.com/1b65bc25ad4727d7c44630a5ceddb1b6/6e7c5624608eadc8-aa/s100x200/e9c37d7d22f8c06b11130162c55eb3adf5ce61f3.gif"/>
+Cred to [Orphy!](https://github.com/Ovrpheus) || This read-me is matching with [Vilipender](https://github.com/vilipender) The image below is me and Esti, real!!
+
+<img src="https://64.media.tumblr.com/f27a3e9cb2102fcfaef3ccdd1ae6de12/80d785fe68d34d09-bb/s2048x3072/aacfa88fbe0a77e8a7172870c3d1c5e66e879872.gif"/>
