@@ -5,7 +5,7 @@
 
 <img src="https://64.media.tumblr.com/b239f302ecb0bd2b35d7dc4440dce173/e99cce9921be0798-73/s2048x3072/f66f72a0163eed36083f2ba900ff2ed3fe2977bf.pnj"/>
 
-$${\color{#ac191c}"\space They \space think \space that \space I \space should \space keep \space quiet \space . \space . \space . \space"}$$
+$${\color{#ac191c}"\space Yes \space and \space they \space will \space run \space you \space down \space , \space down \space 'til \space you \space fall \space"}$$
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/7b76ffe0be2dcbc23f6981bbdd71d8b8/e99cce9921be0798-f5/s1280x1920/10704da2e2e69a224a49fa23cd13ca0a91f901e1.gif"/>
