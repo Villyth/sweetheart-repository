@@ -1,14 +1,14 @@
 <h5 align="center">
 <img src="https://64.media.tumblr.com/01c7d58750674054418bded6dffd44c1/7c05b9b701a41a99-36/s1280x1920/860c134844279fb35b7e48800ce7552d77bff69a.pnj"/>
 
+<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
 </h5>
 
-<img src="https://64.media.tumblr.com/b239f302ecb0bd2b35d7dc4440dce173/e99cce9921be0798-73/s2048x3072/f66f72a0163eed36083f2ba900ff2ed3fe2977bf.pnj"/>
 
 $${\color{#ac191c}"\space Yes \space and \space they \space will \space run \space you \space down \space , \space down \space 'til \space you \space fall \space"}$$
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/7b76ffe0be2dcbc23f6981bbdd71d8b8/e99cce9921be0798-f5/s1280x1920/10704da2e2e69a224a49fa23cd13ca0a91f901e1.gif"/>
+<img src="https://64.media.tumblr.com/f28415f16e7d38bc2fae245a515631ea/0b1cbee1c0dad611-57/s2048x3072/badc4733390c1431d4bb4c4ddf74b66b417c2e6c.pnj"/>
 </h5>  
 
 <h4 align="center">
@@ -33,7 +33,9 @@ Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it
 <img src="https://64.media.tumblr.com/5213930e99b1373f954584732493b846/68ab2ae39a2fe741-0d/s640x960/74a3347fce6e6dffea47db06cfd83ec362d668fc.pnj"/>
 </h5>
 
-<img src="https://64.media.tumblr.com/b239f302ecb0bd2b35d7dc4440dce173/e99cce9921be0798-73/s2048x3072/f66f72a0163eed36083f2ba900ff2ed3fe2977bf.pnj"/>
+<p align ="center">
+<img src="https://64.media.tumblr.com/1328ef96fef208597c4ee2ce50c88a19/038b5d1fbc72f290-d0/s400x600/fe182189e15a8bfcc1ae0821d89668ee1993c055.gifv"/>
+</h5>
 
 <p align ="center">
 <img src="https://64.media.tumblr.com/2555a740dda463601e555017e5895272/68ab2ae39a2fe741-7d/s1280x1920/396d45a90eec350cfad343f92b6ffa2d82b31f29.gif"/>
